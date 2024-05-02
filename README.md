@@ -1,0 +1,1 @@
+# Pratica_de_pre_processamento_de_imagesn_Arthur_Reis
